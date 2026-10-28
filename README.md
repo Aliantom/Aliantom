@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Aliantom
+👋 Hi, I’m @Aliantom
